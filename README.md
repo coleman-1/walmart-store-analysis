@@ -95,4 +95,4 @@ This dashboard can be used by:
 
 **Coleman Nwachukwu**  
 _Data Analyst | Business Intelligence Enthusiast_  
-[LinkedIn](https://www.linkedin.com/) | [GitHub](https://github.com/)
+www.linkedin.com/in/coleman-nwachukwu-b441a1152
